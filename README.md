@@ -1,0 +1,1 @@
+# ogrenci-kay-t-paneli
